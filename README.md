@@ -9,11 +9,11 @@ The Titan Crypter
 ![photo_2025-04-14_07-06-14](https://github.com/user-attachments/assets/37dd62ef-12ca-4ef7-96bd-9c69a86511c6)
 
 
-![photo_2025-03-03_13-00-12](https://github.com/user-attachments/assets/afa9abb7-74a0-426b-9825-50d936ffbcf8)
-![photo_2025-03-03_13-00-01](https://github.com/user-attachments/assets/18617521-9335-4cc4-862a-6f2250f51e5f)
-![photo_2025-03-03_12-59-47](https://github.com/user-attachments/assets/b40cde18-9d05-43bb-9ddb-9d87be0cb219)
-![photo_2025-03-03_12-59-11](https://github.com/user-attachments/assets/473c180a-da53-4993-b48f-db9c845a36ff)
-![photo_2025-03-03_13-00-31](https://github.com/user-attachments/assets/af1164aa-c441-498b-913f-ca3eaf349a7f)
+
+![photo_2025-02-04_08-17-04](https://github.com/user-attachments/assets/4e8e7280-fd78-4087-8a08-6f30eb61d28f)
+![photo_2025-02-19_05-22-12](https://github.com/user-attachments/assets/e000e1b2-1081-4849-8eca-046016060435)
+![photo_2025-01-22_08-09-15](https://github.com/user-attachments/assets/318f2b99-c10c-4c6f-9132-715dacd5596c)
+![photo_2024-12-18_07-16-42](https://github.com/user-attachments/assets/8614c139-c0c1-45f0-9bba-f524c8918488)
 
 
 We are excited to announce our new proof and update channels!  
