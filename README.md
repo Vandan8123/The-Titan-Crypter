@@ -6,6 +6,9 @@ The Titan Crypter
 ![photo_2025-04-27_21-05-45](https://github.com/user-attachments/assets/7a83d23f-94a1-4835-92be-410cf263ffa7)
 
 
+![photo_2025-04-14_07-06-14](https://github.com/user-attachments/assets/37dd62ef-12ca-4ef7-96bd-9c69a86511c6)
+
+
 ![photo_2025-03-03_13-00-12](https://github.com/user-attachments/assets/afa9abb7-74a0-426b-9825-50d936ffbcf8)
 ![photo_2025-03-03_13-00-01](https://github.com/user-attachments/assets/18617521-9335-4cc4-862a-6f2250f51e5f)
 ![photo_2025-03-03_12-59-47](https://github.com/user-attachments/assets/b40cde18-9d05-43bb-9ddb-9d87be0cb219)
